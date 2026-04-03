@@ -6,22 +6,8 @@ khi nào đi lại
 sdvcsdv 
 sdvsdfv sd sd sd sdf
 sdv sdf
- sdv sfd 
-rtgrt rt grtgrtg regrtgrt
-ẻ erg  eg retger  eerg erg  erg êr
-sd vsd vsd vsdv sdv dsfv
-d fbfdg bfdgb fgnbf g
-f gfg nbfgn ghn ghn ghn mg
-sdsd dvsd
-sdv
-
-sd
-dsv
-dsv
-dsv
-ds
-v
-vds
-dsv
-dsv
- dvs
+s dcsd csdc sdc sdc sdc 
+sdc sdc sd csdc sdc sdc sd
+c sdcs dc sdc sdc sdc sdcsd csdc sdcs
+ sdcsdcsdc sdcsdc sdc sdc sdc sd csdc s
+  sdcsdcsdc 
